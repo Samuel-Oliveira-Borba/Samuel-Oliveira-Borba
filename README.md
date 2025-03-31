@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Samuel-Oliveira-Borba
+- 👋 Hi, I’m bread
 - 👀 I’m interested in bread
 - 🌱 I’m currently learning bread
 - 💞️ I’m looking to collaborate on bread
